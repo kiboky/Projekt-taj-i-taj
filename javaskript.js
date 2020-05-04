@@ -17,3 +17,4 @@ ja emaneoal sam nappravila te i ite izmejen
 nešto radim i to je to zadnje valjda
 
 e ipak netscape
+đsdjasdjsdldčsaldksad
